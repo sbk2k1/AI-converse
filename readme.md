@@ -1,1 +1,1 @@
-2 gen-ai talking on stuff
+2 gen-ai talking on stuffs
